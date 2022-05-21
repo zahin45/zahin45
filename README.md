@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @zahin45
-- 👀 I’m interested in yout mom
-- 🌱 I’m currently learning ligma
-- 💞️ I’m looking to collaborate on deez nutz
-- 📫 Dont talk me
+- 👀 I like big bootie bitches
+- 🌱 I’m currently learning everything
+- 💞️ Who want me?
+- 📫 Dick riding champion 2020!
 
 <!---
 zahin45/zahin45 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
